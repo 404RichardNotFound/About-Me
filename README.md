@@ -10,6 +10,6 @@
 
 📫 Let's Connect!
 
-🐦 X: jackboy1947
+🐦 X: https://x.com/jackboy1947
 
 📧 Email: onlydrae48@gmail.com

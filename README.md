@@ -1,6 +1,7 @@
 # About-Me
 
 👋 Hi, I'm Richard Okoro!
+
 🚀 Software Developer
 
 - Passionate about building scalable applications and solving real-world problems.
